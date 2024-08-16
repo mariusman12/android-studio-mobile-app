@@ -1,0 +1,5 @@
+![Captură de ecran din 2024-08-16 la 19 29 15](https://github.com/user-attachments/assets/e9366ab4-61c6-434b-ae89-2525cd80ecbd)
+![Captură de ecran din 2024-08-16 la 19 30 48](https://github.com/user-attachments/assets/a0bb567c-c6c1-4129-9941-8cbcacef85b2)
+![Captură de ecran din 2024-08-16 la 19 31 04](https://github.com/user-attachments/assets/5be61e81-e144-40c6-bca6-e2e5d644f5a6)
+![Captură de ecran din 2024-08-16 la 19 31 37](https://github.com/user-attachments/assets/d66be0a9-edbc-49ec-8ee6-64c813d44cf0)
+![Captură de ecran din 2024-08-16 la 19 31 45](https://github.com/user-attachments/assets/67538252-dc80-442c-b558-346063bebb27)
